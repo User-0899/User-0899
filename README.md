@@ -1,3 +1,3 @@
 User-0899㌨DĀ
-UTAUとマイクラとスプラとDiscordとTwitter(現X)とタイタツと音MADとGithubやってます。
-スプラは案外上手い方だと思います。
+UTAUとマイクラとスプラとDiscordとTwitter(現X)とテトリスと音MADとGithubやってます。
+テトリスは案外上手い方だと思います。
